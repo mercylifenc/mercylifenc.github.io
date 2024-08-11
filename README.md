@@ -9,5 +9,7 @@ Welcome to the well of living water, John 10:10 “I came that they may have lif
 Request a prayer: [here](https://mercylifeministry.com/prayer-request/)
 
 Mercy Life Ministries
+
 517 Golf Course Rd
+
 Sanford, NC 27330
