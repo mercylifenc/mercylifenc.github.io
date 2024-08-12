@@ -20,5 +20,8 @@ Luke 4:18 says ”The Spirit of the Lord is on me, because he has anointed me, t
 
 Founder, and Senior Pastor Yonas, Badi
 
+
+###### [_Read more about our beliefs_](beliefs.md)
+
 ###### Address 
 517 Golf Course Rd, Sanford, NC 27330
