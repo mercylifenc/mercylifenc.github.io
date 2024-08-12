@@ -1,3 +1,6 @@
+![alt text](cropped-niagara-218591.jpg)
+
+
 # Mercy Life Ministries
 
 ### Welcome to Mercy Life!
@@ -15,7 +18,7 @@ Our mission is introduce people to the Kingdom of God and his righteousness.  We
 
 Luke 4:18 says ”The Spirit of the Lord is on me, because he has anointed me, to proclaim good news to the poor. He has sent me to proclaim freedom for the prisoners and recovery of sight for the blind, to set the oppressed free.”
 
-
+Founder, and Senior Pastor Yonas, Badi
 
 ###### Address 
 517 Golf Course Rd, Sanford, NC 27330
