@@ -1,4 +1,4 @@
-![alt text](niagara.jpg)
+![alt text](niagara-falls.jpg)
 
 
 # Mercy Life Ministries
