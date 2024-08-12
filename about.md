@@ -1,3 +1,6 @@
+![alt text](cropped-niagara-218591.jpg)
+
+
 Purpose
 
 To deliver people from the Kingdom Satan to the Kingdom of God.
