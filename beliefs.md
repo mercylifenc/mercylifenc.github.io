@@ -1,15 +1,13 @@
 ![alt text](cropped-niagara-218591.jpg)
 
 
-### Purpose
+# Beliefs
+_“Go ye into all the world and preach the gospel to every creature.” – Mark 16:15_ 
 
-To deliver people from the Kingdom Satan to the Kingdom of God.
+### Mission
+We strongly believe in reaching the world by the message of Jesus Christ the only hope of mankind. Our purpose is to expand the kingdom of God in our world by showing the love of Jesus Christ.  We believe that the shed blood of Jesus Christ on the cross provides the sole basis for forgiveness of sins and salvation, which is the free gift of God’s grace. Salvation is affected by the regenerating work of the Holy Spirit and cannot be secured by man’s works or personal merit. Salvation is only appropriated by a person placing his faith in the finished work of Christ. Repentance is a turning toward God and away from sin and is a part of but not separate from believing faith. The Gospel is the power of God for salvation to everyone who believes and those who receive Jesus Christ by faith are born again, have their sins forgiven, become children of God, are a new creation in Christ, and “are sealed by the Holy spirit unto the day of redemption” being kept by the power of God 
 
-### Missions
-
-Reaching people with the Gospel message and change our community!
-
-“Go ye into all the world and preach the gospel to every creature.” – Mark 16:15 We strongly believe reaching the world by the message of Jesus Christ the only hope of mankind. John 3:16 Purpose “He hath showed thee, O man, what is good; and what doth the LORD require of thee, but to do justly, and to love mercy, and to walk humbly with thy God?” Micah 6;8 our purpose to expand the king doom of God in our world by showing the love of Jesus Christ Galatians 2.20 Salvation we believe that the shed blood of Jesus Christ on the cross provides the sole basis for forgiveness of sins and salvation, which is the free gift of God’s grace. Salvation is effected by the regenerating work of the Holy Spirit and cannot be secured by man’s works or personal merit. Salvation is only appropriated by a person placing his faith in the finished work of Christ. Repentance is a turning toward God and away from sin and is a part of but not separate from believing faith. “The Gospel is the power of God for salvation to everyone who believes” and those who receive Jesus Christ by faith are born again, have their sins forgiven, become children of God, are a new creation in Christ, and “are sealed by the Holy spirit unto the day of redemption” being kept by the power of God (Eph. 1:7:13-14; John 1:12-13, John 3:1-7, John 14-16; 2 Cor. 5:17; Rom. 1:16, Rom. 10:9-10; Eph. 2:8-10; Rom. 8:14-17, Rom. 31-39; John 10:27-29, Rom. 14:6; Acts 26:20; 1 Pet. 1:3-5).
+(Eph. 1:7:13-14; John 1:12-13, John 3:1-7, John 14-16; 2 Cor. 5:17; Rom. 1:16, Rom. 10:9-10; Eph. 2:8-10; Rom. 8:14-17, Rom. 31-39; John 10:27-29, Rom. 14:6; Acts 26:20; 1 Pet. 1:3-5).
 
 ### The Christian Life
 
