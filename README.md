@@ -1,4 +1,4 @@
-![alt text](cropped-niagara-218591.jpg)
+![alt text](niagara.jpg)
 
 
 # Mercy Life Ministries
