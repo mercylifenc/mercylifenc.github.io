@@ -25,3 +25,5 @@ Founder, and Senior Pastor Yonas, Badi
 
 ###### Address 
 517 Golf Course Rd, Sanford, NC 27330
+
+###### [Today's Message](todaysmessage.md)
