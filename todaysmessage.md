@@ -1,12 +1,12 @@
-# Todays Message!!!!!
+# Fight the Good Fight
 
 ### Verses
 
 [Psalm 144:1-2](https://www.biblegateway.com/passage/?search=Psalm%20144%3A1-2&version=KJV)
 
-[Psalm 1](https://www.biblegateway.com/passage/?search=Psalm%201&version=KJV)
+[Psalm 1:1-6](https://www.biblegateway.com/passage/?search=Psalm%201&version=KJV)
 
-[Psalm 34](https://www.biblegateway.com/passage/?search=Psalm%2034&version=KJV)
+[Psalm 34:1-22](https://www.biblegateway.com/passage/?search=Psalm%2034&version=KJV)
 
 ### Music
 
