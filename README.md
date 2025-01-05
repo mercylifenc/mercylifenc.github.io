@@ -26,9 +26,9 @@ Founder, and Senior Pastor Yonas Badi
 
 
 
-###### [View today's message](message010525.md)
+###### [_View today's message_](message010525.md)
 
-###### [Review past messages](pastmessages.md)
+###### [_Review past messages_](pastmessages.md)
 
 
 
