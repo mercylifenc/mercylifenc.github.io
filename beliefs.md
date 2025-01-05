@@ -32,4 +32,5 @@ The following paragraphs simply summarize what we believe as a church family. We
 
 Founder and Senior Pastor Yonas Badi. Assistance Pastor Pam Dagget
 
-[Home](README.md)
+
+[back to home page](README.md)
