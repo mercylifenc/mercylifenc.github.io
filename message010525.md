@@ -25,4 +25,4 @@ Free Christmas Dinner: Wednesday, December 25th, @ 12:00 p.m.
 
 ### May god bless you 🙏
 
-[back to home page](readme.md)
+[back to home page](README.md)
