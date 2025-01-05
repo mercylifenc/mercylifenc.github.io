@@ -18,17 +18,9 @@ Our mission is introduce people to the Kingdom of God and his righteousness.  We
 
 Luke 4:18 says ”The Spirit of the Lord is on me, because he has anointed me, to proclaim good news to the poor. He has sent me to proclaim freedom for the prisoners and recovery of sight for the blind, to set the oppressed free.”
 
-Founder, and Senior Pastor Yonas Badi
+Founder, and Senior Pastor Yonas Badi [_Read more about our beliefs_](beliefs.md)
 
-###### [_Read more about our beliefs_](beliefs.md)
-
-
-
-
-
-###### [_View today's message_](message010525.md)
-
-###### [_Review past messages_](pastmessages.md)
+###### [_View today's message_](message010525.md) or [_Review past messages_](pastmessages.md)
 
 
 
