@@ -20,10 +20,18 @@ Luke 4:18 says ”The Spirit of the Lord is on me, because he has anointed me, t
 
 Founder, and Senior Pastor Yonas Badi
 
-
-
-
 ###### [_Read more about our beliefs_](beliefs.md)
+
+
+
+
+
+###### [View today's message](message010525.md)
+
+###### [Review past messages](pastmessages.md)
+
+
+
 
 
 ###### Address 
@@ -32,9 +40,7 @@ Founder, and Senior Pastor Yonas Badi
 
 
 
-###### [Today's Message](message010525.md)
 
-###### [Past Messages](pastmessages.md)
 
 
 
