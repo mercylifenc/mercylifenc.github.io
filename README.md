@@ -8,6 +8,8 @@ Welcome to the well of living water, John 10:10 (NRSVA) “I came that they may 
 
  - Worship with us Sunday at 11:00 AM
  - Pray with us Wednesday at 6:00 PM
+ - 517 Golf Course Rd, Sanford, NC 27330
+
 
 Request a prayer: [here](https://mercylifeministry.com/prayer-request/)
 
@@ -26,8 +28,6 @@ Founder, and Senior Pastor Yonas Badi
 
 
 
-###### Address 
-517 Golf Course Rd, Sanford, NC 27330
 
 
 
