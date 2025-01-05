@@ -1,4 +1,4 @@
-# Fight the Good Fight
+# Message Title
 
 ### Verses
 
@@ -11,6 +11,8 @@
 ### Music
 
 [I can only imagine](https://youtu.be/N_lrrq_opng?si=zYMNA7SFXPaqW9rJ)
+
+[Blessed assurance](https://youtu.be/uMLOlYWM03g)
 
 ### Announcements 
 
