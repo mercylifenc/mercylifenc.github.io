@@ -2,15 +2,13 @@
 
 ### Verses
 
-[Scripture Address](https://www.biblegateway.com/passage/?search=BOOK%20CHAPTER&version=KJV)
+[Scripture Address](https://www.biblegateway.com/passage/?search=BOOK%20CHAPTER%3AVERSE-VERSE&version=KJV)
 
 
 
 ### Music
 
-[I can only imagine](https://youtu.be/N_lrrq_opng?si=zYMNA7SFXPaqW9rJ)
-
-[Blessed assurance](https://youtu.be/uMLOlYWM03g)
+[Song title](LINK)
 
 ### Announcements 
 
