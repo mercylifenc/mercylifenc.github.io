@@ -1,28 +1,4 @@
-![alt text](niagara-falls.jpg)
-
-
-# Mercy Life Ministries
-
-### Welcome to Mercy Life!
-
- - Worship with us Sunday at 11:00 AM
- - Pray with us Wednesday at 6:00 PM
- - 517 Golf Course Rd, Sanford, NC 27330
-
-
-
-
-
-
-### About
-Our mission is introduce people to the Kingdom of God and his righteousness.  We strive to bring the good news of the Gospel through local outreach and community service. 
-
-Luke 4:18 says ”The Spirit of the Lord is on me, because he has anointed me, to proclaim good news to the poor. He has sent me to proclaim freedom for the prisoners and recovery of sight for the blind, to set the oppressed free."
-
-Founder, and Senior Pastor Yonas Badi 
-
-
-
+# under construction 
 
 
 
